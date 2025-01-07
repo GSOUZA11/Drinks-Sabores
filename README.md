@@ -6,7 +6,6 @@ Nosso menu inclui drinks clássicos, como o Morango, Laranja e Abacate, além de
 
 Se você está procurando um drink para uma festa, um encontro ou simplesmente para relaxar em casa, você encontrará a bebida perfeita aqui.
 
-Se você está procurando um drink para uma festa, um encontro ou simplesmente para relaxar em casa, você encontrará a bebida perfeita aqui.
 
 Navegue pelo nosso site e descubra o mundo dos drinks com sabores!
 
