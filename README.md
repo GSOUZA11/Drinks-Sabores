@@ -9,3 +9,6 @@ Se você está procurando um drink para uma festa, um encontro ou simplesmente p
 Se você está procurando um drink para uma festa, um encontro ou simplesmente para relaxar em casa, você encontrará a bebida perfeita aqui.
 
 Navegue pelo nosso site e descubra o mundo dos drinks com sabores!
+
+
+![Captura de Tela (154)](https://github.com/user-attachments/assets/d7e0c96b-4dd0-43c4-8bb4-71c507ce8daf)
